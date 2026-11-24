@@ -1,0 +1,1 @@
+This game is just for fun and AI-generated. I want to create my ideas into visuals because I don't have much time to create by myself, so I just build with AI. This game is intended purely for entertainment and is AI-generated. I utilize AI to transform my ideas into visuals due to limited time for manual creation. 
